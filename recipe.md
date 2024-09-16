@@ -26,4 +26,4 @@
 6. Line the bottom of the baking pan with parchment paper for easy cake removal.
 
 ## Additional Direction for task 3:
-7. ???
+7. ????
